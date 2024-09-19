@@ -1,0 +1,8 @@
+![Screenshot_20240625_063829](https://github.com/R4GN4R0K-SEC/ZER0BOT/assets/74421852/4e983bd2-11ad-4738-944a-601330089661)
+![Screenshot_20240625_070951](https://github.com/R4GN4R0K-SEC/ZER0BOT/assets/74421852/4e7af1a0-8358-4c75-8b37-f14699894bdf)
+![Screenshot_20240625_071141](https://github.com/R4GN4R0K-SEC/ZER0BOT/assets/74421852/188a8bf6-d838-41a4-87f3-a93284227955)
+![Screenshot_20240625_071357](https://github.com/R4GN4R0K-SEC/ZER0BOT/assets/74421852/70b1dffb-ee20-4678-ba9c-a7e5ed46b0b4)
+![Screenshot_20240625_071616](https://github.com/R4GN4R0K-SEC/ZER0BOT/assets/74421852/1a6b8b02-23ea-4609-adec-5029fd6404f5)
+![Screenshot_20240625_071711](https://github.com/R4GN4R0K-SEC/ZER0BOT/assets/74421852/8b9e1c10-19a1-4603-a2f0-57e24c53f97d)
+![Screenshot_20240625_071751](https://github.com/R4GN4R0K-SEC/ZER0BOT/assets/74421852/d6f354d4-f070-4fff-9542-bbb3ba73a64f)
+![Screenshot_20240625_071917](https://github.com/R4GN4R0K-SEC/ZER0BOT/assets/74421852/3dca7ac3-c0bf-4810-a100-29f00833af97)
